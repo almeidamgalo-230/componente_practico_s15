@@ -1,1 +1,0 @@
-# componente_practico_s15
